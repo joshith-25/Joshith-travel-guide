@@ -1,4 +1,4 @@
-# joshith – India & World Travel Guide ✈️
+[Download PDF → Project Overview & App Mockups](5cm_document2025-11-27%2020-44-35.pdf)
 
 Smart no-code tourist guide app  
 India lo prathi state + popular countries – seasonal suggestions, photos, offline download, wishlist & trip planner
